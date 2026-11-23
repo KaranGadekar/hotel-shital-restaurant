@@ -1,1 +1,0 @@
-Hotel Shital Restaurant
